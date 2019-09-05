@@ -12,11 +12,11 @@ It is out of my fear of uncertainty. I want to plan everything perfectly, so tha
 
 Why? Because surprises are scary. 
 
-However, this premise is completely wrong. Nothing in life happens as exactly planned. And if it did, what a boring game would it be? 
+However, this premise is completely wrong. Nothing in life happens as exactly planned. And if it did, what a boring life would it be? 
 
 Similar lessons can be learned in an Improv class (which I highly recommend everyone taking at least once!).
 
-Instead of planning every component of the scene in your head and imposing that on your scene partners and the audience, you are encouraged to be present, listen to yourself and what is happening around you, and to follow your instincts. That way, your most authentic self emerges. That authenticity often pleasantly surprises the audience and even yourself as that level of authenticity is so rare in the world. 
+Instead of planning every component of the scene in your head and imposing that on your scene partners and the audience, you are encouraged to be present, listen to yourself and what is happening around you, and to follow your instincts. That way, your most authentic self emerges. That authenticity often pleasantly surprises the audience and even yourself as that level of authenticity is so rare in real life.
 
 I'm sure I'm not the only one who commits this crime, missing precious opportunities and beautiful moments in life because I'm too stuck inside my head trying (futilely) to plan everything out in advance.
 

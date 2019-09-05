@@ -14,7 +14,7 @@ I wasn't. I am not.
 
 Feeling a sense of entitlement makes us demand more from the world, and resentful in the case things don't pan out as we desired. It becomes a quick path to misery. 
 
-I'm not only saying this in the veins of "If you expect less, you are frustrated less." (Which is also true). 
+I'm not only saying this in the veins of "If you expect less, you will be frustrated less." (Which is also true). 
 
 If you feel less entitled, there emerges a room for more gratitude, and this shift in mindset naturally makes you a happier person. 
 

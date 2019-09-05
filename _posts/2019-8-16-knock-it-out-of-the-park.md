@@ -22,11 +22,11 @@ After a while I realized the project wasn't going anywhere and had to drop it. W
 
 Even more fortunately, I got a second chance with that friend. Thanks to my situation, I now have a lot more free time, and I am able to give my 110%. 
 
-I am not planning taking on more work beyond what I have on plate, since I know I won't be able to deliver my best efforts, despite the fact that I need the money, from whatever source available.
+I am not planning taking on more work beyond what I have on plate, since I know I won't be able to deliver my best efforts, despite the fact that I need the money from whatever source available.
 
 I believe this prioritization will pay the dividends in a longer term. 
 
-Once you build a reputation of continuously  knocking whatever task that's in front of you out of the park, people will come to you with more lucrative opportunities. Once you build a reputation of continuously half-assing and even worse flaking on projects, no one will come to you.
+Once you build a reputation of continuously  knocking whatever task that's in front of you out of the park, people will come to you with more lucrative opportunities. Once you build a reputation of continuously half-assing and even worse, flaking on projects, no one will come to you.
 
 The tricky part is that you will never know in advance which opportunity will lead to building your reputation. And the truth is, every opportunity will count. 
 
