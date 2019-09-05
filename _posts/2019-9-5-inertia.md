@@ -22,7 +22,7 @@ And the most positive, good changes (or goals) we set out for ourselves? They ar
 
 Not to our surprises, it is so easy to fuck up a positive progress you've been making in the habit department. All you need are well-crafted excuses or stories that tell you 'Just this once,' 'You deservie this,' 'No one will notice,' 'You can just start over tomorrow,' 'You might as well,' and the list continues.
 
-After you except the excuse and make your way down to the place you were, thinking 'Just this once. I will come back promptly to my path once I'm done?'
+After you accept the excuse and make your way down to the place you were, thinking 'Just this once. I will come back promptly to my path once I'm done?'
 
 Then the intertia does the rest of the work. You will fit comfortably right back to where you were, the place you didn't want to be when you reset last time, and it will be even harder to get out this time. 
 
