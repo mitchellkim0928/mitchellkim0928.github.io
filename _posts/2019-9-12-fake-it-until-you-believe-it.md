@@ -18,7 +18,11 @@ I sometimes went into a few weeks of depressive mental states, making poor decis
 
 But first of all, it's okay to feel down and sad. You are not a robot, nor Joker. Don't restrict those emotions and let them out. Embarrasingly enough, I did end up crying a lot through this struggle, and I'm glad I did. It felt like finally I was letting go of the obsessive control I had over my own emotions, and letting them out free. Liberating. 
 
-And next, eventually, if you put enough efforts and thoughts to manage your mental state positively (after all, you can't stay down forever. Wait for yourself to unpack all the emotions, and then kindly extend a hand to lift him up), those beliefs that were weak and made up, will come around and be planted as strong, genuine belifs. 
+And next, eventually, if you put enough efforts and thoughts into managing your mental state positively (after all, you can't stay down forever. Wait for yourself to unpack all the emotions, and then kindly extend a hand to lift ya up). Those beliefs that were weak and made up, will come around and over time, get stronger and be planted as genuine beliefs. 
 
-Eventually, I came around to have a healthy way to maintain a positive attitude, while doing justice to my non-positive emotions, which I found out to be the right coping mechanism. 
+I'm not saying I've got this down. I still have my good and bad days, even good and bad weeks. With the combination of accepting and freeing my negative emotions and really beleiving in the "Fake it until you believe it" mantra by bringing myself back up whenever I fall down, I think I've found the right direction to go towards, though. 
+
+Remember, it's okay to feel down. Shits are hard. Fake it until you believe it, and kindly bring yourself back up. We'll get there before we know it. 
+
+
 
