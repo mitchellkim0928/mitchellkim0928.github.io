@@ -4,12 +4,12 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+A blog to archive the lessons I am learning in life through a format of letters to self. 
 
-### More Information
+Writing to clear my heads, keep regular commitments with myself, and be held accountable for my ideas in hopes that they will help somebody else out there. 
 
-A place to include any other types of information that you'd like to include about yourself.
+Inspired by Rohan Rajiv's [A Learning a Day](https://alearningaday.blog/), Seth Godin's [blog](https://seths.blog/), and [머니맨](http://moneyman.kr/).
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[mckim0928@gmail.com](mailto:mckim0928@gmail.com)
